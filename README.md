@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ImSomone
+- 👀 I’m interested in IA
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me
